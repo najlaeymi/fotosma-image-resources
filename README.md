@@ -1,0 +1,1 @@
+# fotosma-image-resources
